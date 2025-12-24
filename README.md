@@ -1,3 +1,5 @@
+ссылка на гугл диск 
+https://drive.google.com/drive/folders/1ufvh1Cp3KGl6MZ7qMfdAfdsRg0_w_qXg?usp=drive_link
 ![эпл](https://github.com/user-attachments/assets/0bff1f59-9955-47b6-a5db-cde949575441)
 ![гугл](https://github.com/user-attachments/assets/06f9da49-05b3-4e50-a049-5ba547aa079a)
 ![тралик](https://github.com/user-attachments/assets/a75213ec-9ad8-413c-bba7-aed97b60169c)
